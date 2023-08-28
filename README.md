@@ -5,9 +5,9 @@
 
 - 💬 Ask me about **nothing**
 
-- 📫 How to reach me **TG: MalinoRev**
+- 📫 How to reach me: **TG: MalinoRev**
 
-- ⚡ Fun fact **Working for myself**
+- ⚡ Fun fact **I'm not using github**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
